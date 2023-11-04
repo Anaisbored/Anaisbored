@@ -1,2 +1,1 @@
 Ana
-Fav person: Yorkie
